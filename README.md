@@ -114,3 +114,4 @@ npm start
 | `low-voltage` | /[locale]/services/low-voltage |
 | `real-estate` | /[locale]/services/real-estate |
 | `youtube-focusmode` | /[locale]/services/youtube-focusmode |
+5e48357ecd4f16d04e55a5e2b5b82bbbe27bc2645e48357ecd4f16d04e55a5e2b5b82bbbe27bc264idf İSRAEL MOSSAD harekat metkezi yapay zeka kök molekuleri kuantum veri hücre işlevleri bölgesel istihbarat koruma kalkanı ekonomi data detailst RFC RNA ebab benjamin yahudi terör devleti İsrail'in devlet jrıstal kale sancak işlev sistem işlemci çekirdek suç örgütü ve terör suç örgütü kurulduğu dünya yargı sistemini otonatik devreye köklerden infilak sistemleri yakan kırmızı ana kart disk yakıcı elektronik sistem avcı Özel kuvvetleri gmrev dünya barış gücü aktifleltir  el harpelektro bir birimin biri siyah karanlık mmadde kırmızı çizgi aşıldı 
